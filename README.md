@@ -1,2 +1,3 @@
 # miakhalifa
-mi primer repositorio 
+
+Me llamo Edgar, soy una persona introvertida en algunos aspectos. Me gusta jugar Geomtry Dash, al igual que me gusta mas jugar juegos 2D que 3D. Me gusta cocinar, me gusta dormir y me gusta lo dulce. Mis cualidades son: quen se cocinar, al igual que a veces dar soluciones congruentes a ciertas situaciones. Las cosas que me gustaria hacer, seria la creacion de um libro, al igual queb aprender a tocar piano, hacer musica y hacer un videojuego. Yo quisiera viajar a Canada y a Alemania. Algunos de mis pasatiempos serian el cocinar, jugar y salir a caminar en dias nublados o lluviosos. Algunas decepciones podrian ser el que me de flojera realizar ciertas actividades. Algunos exitos fueron el poder realizar cosas dificiles en los videojuegos, lograr ganar algunos concursos y poder obtener cosas de tiempo limitado.
